@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Saurabh Kale</h1>
-<h3 align="center">am enthusiastic, dedicated and a hardworking person, with a desire to learn and explore the ever-evolving technologies of Computer Sciences and Data Science</h3>
+<h3 align="center">I am enthusiastic, dedicated and a hardworking person, with a desire to learn and explore the ever-evolving technologies of Computer Sciences and Data Science</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=saurabh-k-7&label=Profile%20views&color=0e75b6&style=flat" alt="saurabh-k-7" /> </p>
 
