@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **saurabh2003kale@gmail.com**
 
-- 📄 Know about my experiences [http://bit.ly/3LskVtf)
+- 📄 Know about my experiences : Resume "http://bit.ly/3LskVtf"
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
