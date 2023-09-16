@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **saurabh2003kale@gmail.com**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAFuiEKNW1g/tftfVbW4iWut__WhBeYVPQ/view?utm_content=DAFuiEKNW1g&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink](https://www.canva.com/design/DAFuiEKNW1g/tftfVbW4iWut__WhBeYVPQ/view?utm_content=DAFuiEKNW1g&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink)
+- 📄 Know about my experiences [http://bit.ly/3LskVtf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
